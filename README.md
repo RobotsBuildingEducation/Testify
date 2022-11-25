@@ -1,6 +1,8 @@
 # Testify
 A platform for civic engagement.
 
+1. <a href="#bitcoin-why-sam-bankman-fried--charlie-munger-could-never-be-jay-z"> #BITCOIN: WHY SAM BANKMAN-FRIED & CHARLIE MUNGER COULD NEVER BE JAY-Z </a>
+
 # #BITCOIN: WHY SAM BANKMAN-FRIED & CHARLIE MUNGER COULD NEVER BE JAY-Z
 ![image](https://user-images.githubusercontent.com/37036296/119944791-8e8c2880-bf49-11eb-86c5-d7639efc82a0.png)
 
