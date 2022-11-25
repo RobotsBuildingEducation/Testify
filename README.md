@@ -58,7 +58,7 @@ The financial technology industry is largely an extension of the banking sector.
 
 ![image](https://user-images.githubusercontent.com/37036296/119938884-e888f000-bf41-11eb-9fb3-b19c005cfa3c.png)
 
-It’s also not a coincidence why folks like Charlie Munger are not fond of the system. According to investors like Charlie Munger, these new currencies are bad because they cannot detect crime. But what this also means is that you belong to a system that assumes you are untrustworthy first that must essentially verify that you aren't an undocumented immigrant, a drug trading criminal, or a terrorist. These relationships are constantly monitored in things like credit score, loans, and other means of securing wealth which is exactly where banks fall into institutional oppression. Frankly, Charlie Munger could never be someone like Jay Z either.
+It’s also not a coincidence why folks like Charlie Munger are not fond of the system. According to investors like Charlie Munger, these new currencies are bad because they cannot detect crime. But what this also means is that you belong to a system that assumes you are untrustworthy first that must essentially verify that you aren't an undocumented immigrant, a drug trading criminal, or a terrorist. These relationships are constantly monitored in things like credit score, access to loans, and other means of securing wealth which is exactly where banks fall into institutional oppression. They're systems we are either unaware of or numb to - but they are wrong. They are unfair and unjust. Frankly, Charlie Munger could never be someone like Jay Z either.
 
 ![image](https://user-images.githubusercontent.com/37036296/119940104-96e16500-bf43-11eb-8f5c-fa5c4ca4f437.png)
 
